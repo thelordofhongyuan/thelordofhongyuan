@@ -1,8 +1,4 @@
-# **KALi** — About Me!!!
+![](https://files.catbox.moe/bhztpb.png)
 
-![](https://files.catbox.moe/7g5dls.gif)
-
-
-**Married, and I'm a mother of 6.**  
-Agender Lesbian, West Asian.  
-Plural Schizophrenic and Autistic
+![](https://files.catbox.moe/6mh6x7.png)
+![](https://files.catbox.moe/ctpy5j.png)
